@@ -1,0 +1,1 @@
+# 2-002-mechanics-and-materials-ii-spring-2004_b4f067f456394cfbb01e5897245998c7
